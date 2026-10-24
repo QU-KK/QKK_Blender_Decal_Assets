@@ -1,0 +1,1 @@
+# QKK_Blender_Decal_Assets
